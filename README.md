@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @WaitroseOfficial
 - 👀 I’m interested in illegal firearms
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning tax evasion
 - 💞️ I’m looking to collaborate on false flag operations
 - 📫 How to reach me: carrier pidgeon
 - ⚡ Fun fact: I'm banned from 13 european countries
